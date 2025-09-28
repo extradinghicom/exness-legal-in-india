@@ -1,4 +1,4 @@
-# Is Exness Legal in India? 🇮🇳
+# Is Exness Legal in India?
 
 Exness is a well–known international forex broker. But what about its status in India? Let’s break it down.
 
