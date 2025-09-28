@@ -27,4 +27,4 @@ Exness is a well–known international forex broker. But what about its status i
 ⚖️ **Conclusion:**  
 Exness can be accessed from India, but because it lacks SEBI regulation, it comes with **risks**. Trade responsibly and always stay informed.
 
-👉 [Read the full article here](https://extrading-hi.com/exness-legal-in-india/)
+👉 Read the full article here [https://extrading-hi.com/exness-legal-in-india/](https://extrading-hi.com/exness-legal-in-india/)
